@@ -1,3 +1,1 @@
-
-
-tester# Writeup_IONIC2025
+writeup qualification ionic solve 6 rank 15Th
