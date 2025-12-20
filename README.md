@@ -1,1 +1,2 @@
-writeup qualification ionic solve 6 rank 15Th
+writeup qualification ionic solve 6 rank 15/84 
+
